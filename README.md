@@ -1,3 +1,2 @@
 # animeshop
-onime naruto win
-svava ukraine
+Sheva - pidor, verni babki
